@@ -1,3 +1,4 @@
 # Projeto Beecrowd
 
-<img src="https://github.com/user-attachments/assets/998a3f45-2c66-476b-8dae-8dbfb7d74ad6">
+<img src="https://github.com/user-attachments/assets/12a1dc4f-7467-44f9-bc8f-544700036a13">
+
